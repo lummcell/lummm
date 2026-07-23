@@ -1,2 +1,0 @@
-# lummm
-bagus aja
